@@ -1,0 +1,2 @@
+# ayouchimed
+Trader &amp; investor 
